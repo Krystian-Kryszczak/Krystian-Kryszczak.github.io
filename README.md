@@ -1,1 +1,0 @@
-# Krystian-Kryszczak.github.io
